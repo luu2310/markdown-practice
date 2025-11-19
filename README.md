@@ -3,7 +3,7 @@
 *Vietnamese Fresh Spring Rolls (*Gỏi Cuốn*) are light, fresh, and easy to make at home.  
 They are perfect as a healthy snack or a light meal.*
 
-**You can read more about Vietnamese food on**
+**You can watch tutorial on**
 [Vietnamese Fresh Spring Rolls That Anyone Can Make](https://www.youtube.com/watch?v=dYgRHTSdOGE)
 
 ---
